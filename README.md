@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alph4r0ck
-- 👀 I’m interested in Ethical Hacking, Cybersecurity in general and Open Source software! 
+- 👀 I’m interested in Ethical Hacking, Cybersecurity in general and Open Source software! Also i make Electronic Music and Audio Engineering!
 - 🌱 I’m currently learning about Cybersecurity and Hacking.
 - 💞️ I’m looking to collaborate on Open Source projects.
 - 📫 How to reach me ... Just hit me up in the DM!
